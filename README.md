@@ -1,4 +1,4 @@
-Graduate of Mechanical Engineering from NC State currently working as a software engineer for Dell Technologies. Please reach out to me at lieric446@gmail.com if you have any questions. Thanks!
+Graduate of Mechanical Engineering from NC State currently working as a software engineer for Dell Technologies. Please reach out to me at lieric446@gmail.com if you have any questions.
 
 
 <!---
